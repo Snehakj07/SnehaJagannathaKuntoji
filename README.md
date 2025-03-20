@@ -1,5 +1,5 @@
-# SnehaJagannathaKuntoji
-Sneha Jagannatha Kuntoji
+# Sneha Jagannatha Kuntoji
+
 
 📌 About Me
 
